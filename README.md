@@ -1,2 +1,1 @@
-# Teamo
-Con amor
+t amo
